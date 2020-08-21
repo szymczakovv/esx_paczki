@@ -1,6 +1,17 @@
-# esx_paczki
-ESX paczki job (polish version)
+Fivem Paczki job
 
-preview: https://www.youtube.com/watch?v=fQWFlBY2gro
-
-Zakazuję kopiowania/rozpowszechniania podpisując się pod to np. wykonane przez maciuś12#1234 /////////// Zrobiłem to w około godzinkę, na dniach update`y
+<p></p>
+Video: 
+https://www.youtube.com/watch?v=fQWFlBY2gro
+<p></p>
+_____________________________________________________
+<p></p>
+https://szymczakovv.pl/
+<p></p>
+https://twitch.tv/szymczakovv
+<p></p>
+https://instagram.com/szymczakovv/
+<p></p>
+https://steamcommunity.com/id/szymczakovv
+<p></p>
+https://discord.gg/wrSqK6k/
